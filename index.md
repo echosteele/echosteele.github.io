@@ -11,4 +11,6 @@ On this website I will be playing for you a variety of games including Bed Wars,
 
 
 
-![ech0craft](https://github.com/echosteele/echosteele.github.io/blob/master/ech0craft.png)
+![ech0craft](https://github.com/echosteele/echosteele.github.io/blob/master/ech0craft.jpg)
+
+I am 10 years old and live in California aka the golden state.
